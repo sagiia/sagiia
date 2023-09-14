@@ -7,3 +7,5 @@
 👯 **Collaboration**: Eager to connect and collaborate with fellow content creators and developers. Feel free to reach out!
 
 📫 **Contact**: www.linkedin.com/in/sagi-menahem
+
+📧 **Email**: sagiia1997@gmail.com
